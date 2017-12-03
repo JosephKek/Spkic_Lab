@@ -1,1 +1,0 @@
-# Spkic_Lab
